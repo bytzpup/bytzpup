@@ -1,4 +1,4 @@
-### ***Bytz Pup 🐕*** *(/Bites Pup/)*
+### ***Bytz Pup 🐕*** *(/Bytes Pup/)*
 **It/Its**
 
 You can find more about me here: 
